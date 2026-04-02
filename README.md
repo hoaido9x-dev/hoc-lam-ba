@@ -12,3 +12,24 @@ anh em rùi đó
 g hg hm hm hjm ghm ghm gm ghm gh m
 ghmngh gh ghmgh gh mghfgh gh ghjm gh 
 fnjgf fg nfg fg fg 
+sds sd vsdsd
+sdds
+ds
+vd
+svds
+v
+dsv
+vds
+dsv
+vd
+s
+vds
+vds
+vds
+
+vds
+dvs
+vd
+
+dvssvdsvd
+ sdvvd sdvsdvs
